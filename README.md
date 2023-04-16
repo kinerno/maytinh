@@ -1,0 +1,2 @@
+# maytinh
+code nghịch 
